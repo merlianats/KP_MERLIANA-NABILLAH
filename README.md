@@ -7,7 +7,7 @@ RSUD CIAWI, KABUPATEN BOGOR
 
 -----------------------------------------------------------------
 
-Progress dan dokumentasi selama Kerja Praktik dilaksanakan.
+Progress dan dokumentasi selama kerja praktik dilaksanakan.
 
 
 
