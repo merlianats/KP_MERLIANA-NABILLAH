@@ -1,13 +1,13 @@
-### ANGGOTA MAHASISWA
-1. Merliana Tri Susilowati - 3411211057
-2. Nabillah Nurhaliza - 3411211058
+### 👥 ANGGOTA MAHASISWA
+1. 3411211057 - Merliana Tri Susilowati
+2. 3411211058 - Nabillah Nurhaliza
 
-### LOKASI KERJA PRAKTIK
-RSUD CIAWI, BOGOR
+### 📍LOKASI KERJA PRAKTIK
+RSUD CIAWI, KABUPATEN BOGOR
 
 -----------------------------------------------------------------
 
-Seluruh progress dan dokumentasi selama Kerja Praktik berlangsung.
+Progress dan dokumentasi selama Kerja Praktik dilaksanakan.
 
 
 
