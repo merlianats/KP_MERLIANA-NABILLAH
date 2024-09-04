@@ -1,4 +1,4 @@
 ### Dokumen Laporan
 
-[Link Google Docs](https://docs.google.com/document/d/1OamrpouO83gi3g_ZH_SuEmxkSxf2brf0ogrFkmY7C8E/edit?usp=sharing)
+[Link Google Docs](https://docs.google.com/document/d/1l2u_qKtsKo5iPmnLlVTMZGDnHws-4HG0dy1lW2_CpuE/edit?usp=sharing)
 
